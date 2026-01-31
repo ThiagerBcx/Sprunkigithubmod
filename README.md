@@ -1,4 +1,4 @@
-**🚀 Welcome to Visit [[https://sprunky.win/](https://thiagerbcx.github.io/Sprunkigithubmod/)](https://thiagerbcx.github.io/Sprunkigithubmod/) — Blast into Adventure with Sprunky!**
+**🚀 Welcome to Visit (https://thiagerbcx.github.io/Sprunkigithubmod/)](https://thiagerbcx.github.io/Sprunkigithubmod/) — Blast into Adventure with Sprunky!**
 
 ## 🧨 Sprunky — Fast-Paced Action and Endless Fun
 
